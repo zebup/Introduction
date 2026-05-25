@@ -2,7 +2,7 @@
 
 ⌢⌢⌢⌢⌢⌢⌢⌢
 
-  (17)  !!  🍂 brazilian + ISTP  !!    
+  (17)  !!  🍂 brazilian + ISTP IT(S) LSI 6w5 683 sx/sp LVFE RLUEI choleric-melancholic CD chaotic neutral !!    
              ★₊˚ ‘ ‘ demiromantic + bisexual‘ ‘ 🍁 (he/they)
 
 ⊹ ⚔️ | 𝙗𝙮𝙛 .. --> I'm a very reserved person and I can't hold conversations on my own. In general, I prefer listening to talking. I don't care if you're a proshipper or anything like that, just don't talk to me about it or involve me in related topics. I don't talk about roleplaying, but I don't mind if you match characters with me or call me by my character's name.
